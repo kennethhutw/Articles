@@ -92,7 +92,7 @@ You resent people who do. You look at people who promote themselves and their id
 
 You sabotage yourself. You rush through a half-hearted execution and don’t give yourself the time you need to learn something new, or do it the right way. And when it doesn’t turn out the way you wanted you decide it was a total waste of time. But you might have had a totally different outcome if you’d first accepted the fact that it might take time but that the time would be worth it because you believed in it.
 
-你将摧毁你自己。你半心半意的匆匆执行，不给自己学习新知识或是认真做事的时间。当事情最终没有按照你的预期发展时你就觉得这完全是在浪费时间。但是你也许会有一个完全不同的结果，如果在一开始你就接受这将会需要长久的奋斗，但是这一切都是值得的，因为你相信它！
+你将摧毁你自己。你半心半意的匆匆执行，不给自己学习新知识或是认真做事的时间。当事情最终没有按照你的预期发展时你就觉得这完全是在浪费时间。但是如果在一开始你就接受这个並花时间去做或学习，你也许会有一个完全不同的结果，因为你相信它，这一切都是值得的！
 
 **So what happens when you don’t take yourself seriously?**
 
@@ -100,11 +100,11 @@ You sabotage yourself. You rush through a half-hearted execution and don’t giv
 
 You get depressed. You get angry at yourself. You get disappointed in yourself. You wonder why you haven’t done anything. You feel like you never will. You feel like it’s too late. But it’s not.
 
-你将变得抑郁。你将对自己生气。你将对自己失望。你问自己为什么自己什么事都做不好，你觉得自己永远都不能做好，你觉得一切都太晚了，但并不是。
+你将变得抑郁。你将对自己生气。你将对自己失望。你会问自己为什么自己什么事都做不好，你觉得自己永远都不能做好，你觉得一切都太晚了，但并不是。
 
 Every piece of every tiny little thing you’ve ever thought is filled with possibilities. You don’t know what. And that’s scary. You might not yet know how. And that’s hard. But when you take yourself seriously, you give yourself enough credit to know that you can figure it out. When you know in your heart that you and your ideas are important, you will give every idea you have a fighting chance.
 
-你曾经的每一件细微的思想都充满了无限可能性。但是你没有发现这点，这是很可怕的，你可能还不知道会如何，这是困难的。但是当你重视你自己，给予自己足够的信任来认识到自己是能解决问题的。当从内心认识到自己和自己的想法是十分重要的，你将会给予每一个想法一个奋斗的机会！
+你曾经的每一件细微的思想都充满了无限可能性。但是你没有发现这点，这是很可怕的，你可能还不知道会如何，这是困难的。但是当你重视你自己，给予自己足够的信任来认识到自己是能解决问题的。这是十分重要的当从内心认识到自己和自己的想法，你将会给予每一个想法一个奋斗的机会！
 
 That might mean speaking up at work. Or it might mean just finishing that one thing you’ve been thinking about forever. Or it might mean tweeting about it, making a video or blog post about it, or getting on a stage and sharing it with an audience.
 
