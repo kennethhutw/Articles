@@ -4,7 +4,7 @@
 -   *原文链接* *: [Do You Take Yourself Seriously?](https://medium.com/@sarahcpr/do-you-take-yourself-seriously-704418a5f614#.4n5t44wos)*
 -   *原文作者* *: [Sarah Cooper](https://medium.com/@sarahcpr?source=post_header_lockup)*
 -   *译者* *: [Kenneth](http://kennethhutw.github.io/)*
--   Translated with the permission from the author, [Sarah Cooper](https://medium.com/@sarahcpr?source=post_header_lockup)*
+-   *作者授权翻译* *: Translated with the permission from the author, [Sarah Cooper](https://medium.com/@sarahcpr?source=post_header_lockup)*
 
 Do You Take Yourself Seriously?
 
